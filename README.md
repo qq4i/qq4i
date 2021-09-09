@@ -1,0 +1,3 @@
+- 👋 Hi, I’m kai/qai  || THEY/HE
+- 📫 You can contact/reach me on pony town, twitter:)
+- I am...Artist, Writer, Roleplayer, Gamer!
